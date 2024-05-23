@@ -251,7 +251,7 @@ mbti：intj
 ```
 - （编号③⑦）
 
- <img src="https://github.com/141801/info/assets/42635299/6428a9e2-6433-41a4-b04b-7b29190f2bb8" width="25%" /> 
+ <img src="https://github.com/141801/info/assets/42635299/6428a9e2-6433-41a4-b04b-7b29190f2bb8" width="30%" /> 
  
 ```
 群昵称：橘子🍊
