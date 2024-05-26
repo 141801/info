@@ -2,7 +2,7 @@
 
 
 - （编号63）
- <img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" width="50%" /> 
+ <img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" width="100%" /> 
 
 - (编号61)
 ```
