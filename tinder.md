@@ -1,6 +1,8 @@
 # 男生
 
 - （编号65）
+<img src="https://github.com/141801/info/assets/42635299/c7ad4f96-da31-4c26-9eb2-3b68b99c7874" width="50%" /> 
+
 ```
 00年 男 75kg 176
 国内本科 现住东京 现读语校
