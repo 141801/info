@@ -605,8 +605,8 @@ e人，白羊座，山东济南人，174，70kg，
 
 - (编号67)
 
-<img src="https://github.com/141801/info/assets/42635299/d66ec57f-9a41-4e3e-a18a-67605e6aa2b0" width="50%" />
-<img src="https://github.com/141801/info/assets/42635299/18b97975-0ccf-4918-9cd0-c7bc26b165fc" width="50%" />
+<img src="https://github.com/141801/info/assets/42635299/d66ec57f-9a41-4e3e-a18a-67605e6aa2b0" width="70%" />
+<img src="https://github.com/141801/info/assets/42635299/18b97975-0ccf-4918-9cd0-c7bc26b165fc" width="70%" />
 </p>
 
 - (编号66)
