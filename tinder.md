@@ -15,7 +15,7 @@
 
 - (编号71)
 
-<a href="https://ibb.co/gJKsYz5"><img src="https://i.ibb.co/sqYL7y0/2024-05-30-22-20-16.png" width="70%" ></a>
+<img src="https://github.com/141801/info/assets/42635299/ba204956-7b43-42af-94c6-f15f356e405a" width="70%" /> 
 
 
 ```
