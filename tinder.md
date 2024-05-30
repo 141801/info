@@ -15,7 +15,8 @@
 
 - (编号71)
 
-<img src="https://i.ibb.co/sqYL7y0/2024-05-30-22-20-16.png" width="70%" /> 
+<a href="https://ibb.co/gJKsYz5"><img src="https://i.ibb.co/sqYL7y0/2024-05-30-22-20-16.png" alt="2024-05-30-22-20-16" border="0"></a>
+
 
 ```
 广州人 男 1989年
