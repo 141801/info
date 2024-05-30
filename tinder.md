@@ -15,7 +15,7 @@
 
 - (编号71)
 
-<img src="https://github.com/141801/info/assets/42635299/580f4b0e-9baa-4af7-8ca4-a1bf84a44435" width="70%" /> 
+<img src="https://github.com/141801/info/assets/42635299/580f4b0e-9baa-4af7-8ca4-a1bf84a44435"  /> 
 
 ```
 广州人 男 1989年
@@ -40,7 +40,7 @@ INTP理论学者（不热衷研究这个，单纯当作社交话题聊一下）
 
 - (编号70)
 
-<img src="https://github.com/141801/info/assets/42635299/30216e4c-91af-4f7c-b062-637ba7814909" width="70%" /> 
+<img src="https://github.com/141801/info/assets/42635299/30216e4c-91af-4f7c-b062-637ba7814909" /> 
 
 ```
 96年吉林人 爹系的宝宝
@@ -140,7 +140,7 @@ city walk（发现新事物会很有趣）
 ```
 
 - （编号63）
- <img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" width="100%" /> 
+ <img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" /> 
 
 - (编号61)
 ```
@@ -227,7 +227,7 @@ IT大手 正社员 年收 600w
 
 - （编号37）
 
- <img src="https://github.com/141801/info/assets/42635299/5ae8c19d-f30d-458f-9d10-51a9308c6aec" width="70%" /> 
+ <img src="https://github.com/141801/info/assets/42635299/5ae8c19d-f30d-458f-9d10-51a9308c6aec"  /> 
  
 ```
 群昵称：橘子🍊
