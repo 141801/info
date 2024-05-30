@@ -15,8 +15,7 @@
 
 - (编号71)
 
-<img src="https://github.com/141801/info/assets/42635299/ba204956-7b43-42af-94c6-f15f356e405a" width="70%" /> 
-
+<img src="https://github.com/141801/info/assets/42635299/580f4b0e-9baa-4af7-8ca4-a1bf84a44435" width="70%" /> 
 
 ```
 广州人 男 1989年
@@ -92,7 +91,7 @@ ENFP精神状况不太稳定不定时发癫
 
 - （编号65）
   
-<img src="https://github.com/141801/info/assets/42635299/c7ad4f96-da31-4c26-9eb2-3b68b99c7874" width="50%" /> 
+<img src="https://github.com/141801/info/assets/42635299/bd3418ea-0e5d-40d1-ab0a-205c8403df47" width="50%" /> 
 
 ```
 00年 男 75kg 176
@@ -228,7 +227,7 @@ IT大手 正社员 年收 600w
 
 - （编号37）
 
- <img src="https://github.com/141801/info/assets/42635299/6428a9e2-6433-41a4-b04b-7b29190f2bb8" width="50%" /> 
+ <img src="https://github.com/141801/info/assets/42635299/5ae8c19d-f30d-458f-9d10-51a9308c6aec" width="70%" /> 
  
 ```
 群昵称：橘子🍊
