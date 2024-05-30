@@ -6,7 +6,7 @@
 
 - (编号70)
 
-<img src="https://github.com/141801/info/assets/42635299/30216e4c-91af-4f7c-b062-637ba7814909" width="50%" /> 
+<img src="https://github.com/141801/info/assets/42635299/30216e4c-91af-4f7c-b062-637ba7814909" width="70%" /> 
 
 ```
 96年吉林人 爹系的宝宝
