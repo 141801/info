@@ -91,7 +91,7 @@ ENFP精神状况不太稳定不定时发癫
 
 - （编号65）
   
-<img src="https://github.com/141801/info/assets/42635299/bd3418ea-0e5d-40d1-ab0a-205c8403df47" width="50%" /> 
+<img src="https://github.com/141801/info/assets/42635299/bd3418ea-0e5d-40d1-ab0a-205c8403df47" /> 
 
 ```
 00年 男 75kg 176
