@@ -9,7 +9,7 @@
 - (编号76)
 
 ![WechatIMG4176](https://github.com/141801/info/assets/42635299/6770bddd-1639-4f36-b07b-16b05a5f5d32)
-![WechatIMG4177](https://github.com/141801/info/assets/42635299/09523bc1-ccb5-49f4-979e-be4a27635a08)
+
 
 ```
 基础信息
