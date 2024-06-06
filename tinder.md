@@ -384,8 +384,8 @@ enfp，择偶要求就是聊的来，
 ## 男生
 
 - (编号95)
-![WechatIMG43](https://github.com/141801/info/assets/42635299/705b6b6d-9bfd-4d64-965b-bf5c3750f013)
 
+![WechatIMG51](https://github.com/141801/info/assets/42635299/0f8e72a3-fb0c-487c-a3fc-6a6235c9f808)
 
 - (编号94)
 ```
