@@ -602,8 +602,7 @@ mbti:infp
 
 - （编号82）
 
-![WechatIMG4304](https://github.com/141801/info/assets/42635299/571dee45-64ca-4c27-a89e-46b340a8d2ba)
-
+![WechatIMG49](https://github.com/141801/info/assets/42635299/8bdd58a6-d39d-4eed-a278-0a09d079b486)
 
 - （编号81）
 ```
