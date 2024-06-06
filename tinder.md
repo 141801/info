@@ -133,8 +133,8 @@ i人比较社恐（陌生人跟熟人面前两种人）
 ```
 
 - (编号73)
- ![WechatIMG4139](https://github.com/141801/info/assets/42635299/423a12f1-f6c5-489b-8b8d-e1dee981c0f6)
- 
+ ![WechatIMG50](https://github.com/141801/info/assets/42635299/dd95eacd-b827-43bf-b6eb-0d77343422c3)
+
 
 - (编号42)
 ```
