@@ -1,7 +1,7 @@
-* [女生](#女生)
-* [男生](#男生)
+* [女生信息](#女生)
+* [男生信息](#男生)
 
-
+* [群活动](#群活动)
 
 
 ## 女生
@@ -1349,3 +1349,13 @@ intj  不抽烟喝酒
 来日本已经两年了，圈子很小，
 希望能找一个是年龄差不多，聊得来的女生。(^_^;)
 ```
+
+
+## 群活动
+- 吉祥寺bbq(20240602)
+![WechatIMG44](https://github.com/141801/info/assets/42635299/0a5fcc45-aeab-49ed-9590-76a34c57c32c)
+![WechatIMG45](https://github.com/141801/info/assets/42635299/ba98718d-0533-4089-8122-b1d14119565f)
+
+- 登高尾山 (20240525)
+![WechatIMG46](https://github.com/141801/info/assets/42635299/984f4b50-397a-42e7-a523-2c9f9ca39025)
+![WechatIMG47](https://github.com/141801/info/assets/42635299/997c1b07-62f3-4602-bf0a-75af0f52ec64)
