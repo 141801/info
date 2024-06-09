@@ -116,6 +116,7 @@ i人的话相互扶持着出门₍˄·͈༝·͈˄*₎◞ ̑̑，
 ```
 
 - （编号3）
+
 ![WechatIMG4716](https://github.com/141801/info/assets/42635299/16b32708-6000-4e1c-bae6-8c2132608f4d)
 
 ```
@@ -242,7 +243,8 @@ i人比较社恐（陌生人跟熟人面前两种人）
 ```
 
 - (编号73)
- ![WechatIMG50](https://github.com/141801/info/assets/42635299/dd95eacd-b827-43bf-b6eb-0d77343422c3)
+
+![WechatIMG50](https://github.com/141801/info/assets/42635299/dd95eacd-b827-43bf-b6eb-0d77343422c3)
 
 
 - (编号42)
@@ -602,6 +604,7 @@ mbti：esfj
 
 
 - (编号106)
+
 ![WechatIMG4952](https://github.com/141801/info/assets/42635299/1800ee72-362a-4790-a9ea-9db9b1c9012b)
 
 ```
@@ -634,6 +637,7 @@ mbti：esfj
 
 
 - (编号104)
+
 ![WechatIMG54](https://github.com/141801/info/assets/42635299/314f0316-57c7-443d-bee8-518cef23dc33)
 
 
@@ -717,6 +721,7 @@ mbti：esfj
 ```
 
 - （编号87）
+
 ![WechatIMG4840](https://github.com/141801/info/assets/42635299/9628520a-e5b7-4517-a8ef-29ec7c793c91)
 
 ```
@@ -1179,7 +1184,8 @@ city walk（发现新事物会很有趣）
 ```
 
 - （编号63）
- <img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" /> 
+
+<img src="https://github.com/141801/info/assets/42635299/610f969a-de27-4b9f-938b-e139dca6b85a" /> 
 
 - (编号61)
 ```
