@@ -1,5 +1,3 @@
-![WechatIMG4743](https://github.com/141801/info/assets/42635299/b24e9fd5-1715-45cd-9929-d161b5582cf8)
-
 ## 链接
 * [女生](#女生)
 * [男生](#男生)
@@ -582,6 +580,10 @@ enfp，择偶要求就是聊的来，
 * [返回页首](#链接)
 
 ## 男生
+
+- (编号129)
+![WechatIMG5476](https://github.com/141801/info/assets/42635299/0c22458b-ba32-4928-ac3f-916ed6c533e4)
+
 
 - (编号128)
 ```
@@ -1940,11 +1942,17 @@ intj  不抽烟喝酒
 
 
 ## 群活动
-- 吉祥寺bbq(20240602)
+
+- 奥多摩徒步(20240615) 男23 女15
+![WechatIMG65](https://github.com/141801/info/assets/42635299/0d365918-eb40-4848-b863-cd8bb4502b09)
+![WechatIMG66](https://github.com/141801/info/assets/42635299/ad8c5543-c0fc-403d-83b0-7990ccea5514)
+
+
+- 吉祥寺bbq(20240602) 男12 女11
 ![WechatIMG44](https://github.com/141801/info/assets/42635299/0a5fcc45-aeab-49ed-9590-76a34c57c32c)
 ![WechatIMG45](https://github.com/141801/info/assets/42635299/ba98718d-0533-4089-8122-b1d14119565f)
 
-- 登高尾山 (20240525)
+- 登高尾山 (20240525) 男15 女10
 ![WechatIMG46](https://github.com/141801/info/assets/42635299/984f4b50-397a-42e7-a523-2c9f9ca39025)
 ![WechatIMG47](https://github.com/141801/info/assets/42635299/997c1b07-62f3-4602-bf0a-75af0f52ec64)
 
