@@ -583,7 +583,7 @@ enfp，择偶要求就是聊的来，
 
 - (编号131)
 
-- ![WechatIMG5488](https://github.com/141801/info/assets/42635299/b63d7977-919d-4f3b-b47c-a9bf3fa467db)
+![WechatIMG5488](https://github.com/141801/info/assets/42635299/b63d7977-919d-4f3b-b47c-a9bf3fa467db)
 
 ```
 身高 177.7  体重 68
