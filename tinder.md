@@ -1,4 +1,3 @@
-![WechatIMG6005](https://github.com/141801/info/assets/42635299/527c7f2e-57de-4b80-bc1b-8c39513aa825)
 ![WechatIMG70639](https://github.com/141801/info/assets/42635299/a1134bc9-c68d-44e2-853b-3d979a5c1666)
 
 ## 链接
