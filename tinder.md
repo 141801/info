@@ -1,8 +1,7 @@
-[WechatIMG70639](https://github.com/141801/info/assets/42635299/a1134bc9-c68d-44e2-853b-3d979a5c1666)
 
 ## 链接
 * [女生](#女生)
-* [男生](#男生)
+* [男生](https://github.com/141801/info/blob/main/men.md)
 * [群活动](#群活动)
 
 
