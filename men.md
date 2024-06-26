@@ -1,5 +1,5 @@
 ## 链接
-* [女生](https://github.com/141801/info/edit/main/tinder.md )
+* [女生](https://github.com/141801/info/blob/main/tinder.md )
 * [男生](#男生)
 * [群活动](#群活动)
 
