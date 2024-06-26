@@ -1,7 +1,7 @@
 ## 链接
 * [女生](https://github.com/141801/info/blob/main/women.md )
 * [男生](#男生)
-* [群活动](#群活动)
+* [群活动]([#群活动](https://github.com/141801/info/blob/main/activity.md))
 
 
 ## 男生
