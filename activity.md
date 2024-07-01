@@ -6,6 +6,12 @@
 
 ## 群活动
 
+- 駒込饺子会(20240630) 男11 女11
+![WechatIMG75](https://github.com/141801/info/assets/42635299/801a7cbe-f598-4bbd-95f6-e57dab154e03)
+![WechatIMG76](https://github.com/141801/info/assets/42635299/090c8e89-1018-4ad7-9ead-97f23360e5f6)
+
+
+
 - 奥多摩徒步(20240615) 男23 女15
 ![WechatIMG65](https://github.com/141801/info/assets/42635299/0d365918-eb40-4848-b863-cd8bb4502b09)
 ![WechatIMG66](https://github.com/141801/info/assets/42635299/ad8c5543-c0fc-403d-83b0-7990ccea5514)
