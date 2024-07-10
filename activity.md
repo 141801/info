@@ -13,8 +13,8 @@
 
 
 - 駒込饺子会(20240630) 男11 女11
-![WechatIMG75](https://github.com/141801/info/assets/42635299/801a7cbe-f598-4bbd-95f6-e57dab154e03)
-![WechatIMG76](https://github.com/141801/info/assets/42635299/090c8e89-1018-4ad7-9ead-97f23360e5f6)
+![WechatIMG91](https://github.com/141801/info/assets/42635299/32457360-1ea1-4e3d-8fdf-ae46d0553afc)
+![WechatIMG92](https://github.com/141801/info/assets/42635299/2ce7cdd3-2814-4a04-aa9a-1fe7cc49630c)
 
 
 
