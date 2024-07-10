@@ -6,6 +6,12 @@
 
 ## 群活动
 
+- 駒込饺子会(20240707) 男13 女13
+![WechatIMG89](https://github.com/141801/info/assets/42635299/94c249b5-815a-420e-ac7f-8139735068e8)
+![WechatIMG90](https://github.com/141801/info/assets/42635299/b1e6bb01-829a-4b18-a973-d8c338ce36ec)
+
+
+
 - 駒込饺子会(20240630) 男11 女11
 ![WechatIMG75](https://github.com/141801/info/assets/42635299/801a7cbe-f598-4bbd-95f6-e57dab154e03)
 ![WechatIMG76](https://github.com/141801/info/assets/42635299/090c8e89-1018-4ad7-9ead-97f23360e5f6)
