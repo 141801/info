@@ -6,6 +6,10 @@
 
 ## 男生
 
+- (编号194)
+![WechatIMG6350](https://github.com/141801/info/assets/42635299/284d5da3-a3d3-40a4-925b-c3c166bc6373)
+
+
 - (编号193)
 ```
 个人信息
