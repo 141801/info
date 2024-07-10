@@ -1,4 +1,4 @@
-![WechatIMG70639](https://github.com/141801/info/assets/42635299/8be499c0-507b-4fae-b11b-2126735818d4)
+
 
 
 ## 链接
