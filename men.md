@@ -649,11 +649,6 @@ mbti：ENFJ-A
 有上进心，并且能付出努力。
 ```
 
-- （编号163）
-
-![WechatIMG171](https://github.com/141801/info/assets/42635299/09baba3b-6009-4001-a7ae-992350315fa6)
-
-
 - (编号161）
 
 ![WechatIMG5946](https://github.com/141801/info/assets/42635299/1800022a-39f9-4261-89bc-8dc243ac6fc5)
