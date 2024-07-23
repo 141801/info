@@ -6,8 +6,9 @@
 
 ## 群活动
 - 羽毛球聚餐交友(20240720) 男13 女7
-![WechatIMG96](https://github.com/user-attachments/assets/174a45f1-593a-4c69-b3a0-fe65102d7f0f)
-![WechatIMG95](https://github.com/user-attachments/assets/abdc9c7d-ac92-4c49-9870-488924b1c716)
+![WechatIMG97](https://github.com/user-attachments/assets/3155c426-524c-43f0-88a3-0c6d58c27c35)
+![WechatIMG98](https://github.com/user-attachments/assets/0fe84235-61a7-4d38-802f-80c0c2fd329c)
+
 
 
 - 駒込饺子会(20240707) 男13 女13
