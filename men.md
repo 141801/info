@@ -48,6 +48,9 @@
 ```
 
 - （编号225）
+
+![WechatIMG7074](https://github.com/user-attachments/assets/e742361b-c8fe-430d-b3b7-c0424ba62852)
+
 ```
 个人信息
 •群昵称 :小白是妖怪-98-东京
