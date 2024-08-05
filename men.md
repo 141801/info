@@ -1867,10 +1867,6 @@ mbti:infp
 如果有孩子最多能接受一个
 ```
 
-- （编号82）
-
-![WechatIMG49](https://github.com/141801/info/assets/42635299/8bdd58a6-d39d-4eed-a278-0a09d079b486)
-
 - （编号81）
 ```
 在日，辽宁大连人。
