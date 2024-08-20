@@ -111,6 +111,8 @@ mbti     ：isfp
 
 - (编号251）
 
+![WechatIMG7576](https://github.com/user-attachments/assets/33aba23f-6bd1-48b6-aa5d-390b0caf886a)
+
 ```
 基本信息：
 93年，153cm/45kg
