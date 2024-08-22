@@ -53,8 +53,6 @@ mbti：INFJ
 
 - （编号263）
   
-![WechatIMG7546](https://github.com/user-attachments/assets/72fecaa4-af28-4bbc-ad20-848716250005)
-
 ```
 高阳、90年、2010年留学来日
 国立大学本科毕业、现工作于日立制作所
@@ -369,6 +367,7 @@ INTJ INTJ INTJ
 ```
 
 - （编号234）
+![WechatIMG7546](https://github.com/user-attachments/assets/72fecaa4-af28-4bbc-ad20-848716250005)
 ```
 97年男 河北石家庄人 ISTJ
 身高171 体重56（努力增肌中）
