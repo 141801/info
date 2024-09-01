@@ -5,6 +5,10 @@
 
 
 ## 群活动
+-  round1游戏交友(20240831) 男12 女11
+![WechatIMG34](https://github.com/user-attachments/assets/4b21b50e-7a90-44a6-9264-b274b5c9ae4f)
+![WechatIMG35](https://github.com/user-attachments/assets/bf37aff1-9ed7-4cb0-ad17-64912ad2a24b)
+
 
 -  駒込饺子会(20240825) 男13 女14
  ![WechatIMG30](https://github.com/user-attachments/assets/9a5190c3-55f7-45f3-b941-53db54dc1395)
