@@ -433,6 +433,9 @@ mbti     ：INFP
 
 
 - (编号 277)
+
+![WechatIMG372](https://github.com/user-attachments/assets/14506442-ed74-4a3f-b38c-e8b953fea379)
+
 ```
 群昵称：苗
 出生年：1991
