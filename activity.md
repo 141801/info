@@ -3,6 +3,13 @@
 * [男生](https://github.com/141801/info/blob/main/men.md)
 
 ## 群活动
+- 登高尾山 (20240915) 男30+ 女30+
+ ![590709892841acae4b52f0a447fd563d](https://github.com/user-attachments/assets/f74553dc-9e90-4e50-9659-c51f46d7ac2a)
+ ![2095b551e7de5aed178f30879c2d5a4d](https://github.com/user-attachments/assets/3cb1d339-474e-4e33-b7b4-fa1b6ef16ce0)
+
+
+
+ 
 -  round1游戏交友(20240831) 男12 女11
 ![WechatIMG34](https://github.com/user-attachments/assets/4b21b50e-7a90-44a6-9264-b274b5c9ae4f)
 ![WechatIMG35](https://github.com/user-attachments/assets/bf37aff1-9ed7-4cb0-ad17-64912ad2a24b)
