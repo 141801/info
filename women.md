@@ -7,6 +7,21 @@
 
 ## 女生
 
+- (编号311）
+
+![WechatIMG509](https://github.com/user-attachments/assets/259c83fc-4d63-4c97-b45a-7f759d98a7bd)
+
+```
+93年 153cm /48kg 巨蟹座 ESFP
+籍贯：山西
+现居：东京（有长居打算）
+学历：本科
+爱好：爬山，跳舞，游泳，旅游（只要出门了就很开心）
+性格：开朗随和
+希望对方：90后，长相端正，不邋遢170cm➕，不抽烟。
+温柔善良但有原则主见，说话直的冲的ダメ。
+```
+
 - (编号303）
   
 ![WechatIMG415](https://github.com/user-attachments/assets/e6555858-f768-4d9a-be83-975fc91ef679)
