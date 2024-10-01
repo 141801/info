@@ -4,17 +4,14 @@
 
 ## 群活动
 
-- 登高尾山 (20240929) 男13 女12
-
-![WechatIMG57](https://github.com/user-attachments/assets/7bba816d-c9cb-4359-975e-9ab62ca576de)
-![WechatIMG56](https://github.com/user-attachments/assets/49f66f37-18c2-43f9-8ae9-6e69db80f832)
+- 包饺子脱单 (20240929) 男13 女12
+ ![WechatIMG57](https://github.com/user-attachments/assets/7bba816d-c9cb-4359-975e-9ab62ca576de)
+ ![WechatIMG56](https://github.com/user-attachments/assets/49f66f37-18c2-43f9-8ae9-6e69db80f832)
 
 
 - 登高尾山 (20240915) 男30+ 女30+
  ![590709892841acae4b52f0a447fd563d](https://github.com/user-attachments/assets/f74553dc-9e90-4e50-9659-c51f46d7ac2a)
  ![2095b551e7de5aed178f30879c2d5a4d](https://github.com/user-attachments/assets/3cb1d339-474e-4e33-b7b4-fa1b6ef16ce0)
-
-
 
  
 -  round1游戏交友(20240831) 男12 女11
