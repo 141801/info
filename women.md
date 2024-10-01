@@ -246,6 +246,8 @@ MBTI：ENTJ（喜欢说话但宅）
 
 - (编号302）
 
+![WechatIMG925](https://github.com/user-attachments/assets/f5b3890f-7bb0-4e46-b180-d1c256c92357)
+
 ```
 个人资料
 家乡：吉林
