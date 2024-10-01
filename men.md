@@ -8,6 +8,21 @@
 
 ## 男生
 
+- （编号329）
+
+![WechatIMG927](https://github.com/user-attachments/assets/7d3844ae-99ce-4a59-bb18-05bdf11f3ff9)
+
+```
+年龄：96 东北人
+星座：天蝎
+身高：175 体重83公斤左右有点偏胖
+性格：非常内向
+目前在横滨住
+爱好：游戏 小说
+择偶标准：乐观开朗 粘人一点
+```
+
+
 - （编号328）
 
 ![WechatIMG887](https://github.com/user-attachments/assets/3a44924a-cb47-4964-9876-f7867809a54d)
