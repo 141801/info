@@ -8,6 +8,25 @@
 
 ## 男生
 
+- （编号347）
+
+![WechatIMG1023](https://github.com/user-attachments/assets/8a93736a-4725-49a8-9735-e8cc508979ce)
+
+
+```
+现住：东京
+出生地：广东
+性别：男
+出生年份：2000
+身高体重：178/65
+学历：本科
+mbti：istj
+爱好：电影 音乐 city walk
+性格：有些内向，慢热型
+其他：目前大学院在读，不抽烟，偶尔喝一点小酒
+希望的另一半：年龄相差不大，乐观开朗，无不良嗜好
+```
+
 - （编号346）
 
 ![WechatIMG1002](https://github.com/user-attachments/assets/6e718e5f-a406-42aa-b615-2708299f2c59)
