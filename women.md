@@ -8,6 +8,29 @@
 ## 女生
 
 
+- （编号363)
+
+![WechatIMG1138](https://github.com/user-attachments/assets/ff9ebea3-294d-4fa8-af3b-59cd28790c83)
+
+```
+个人资料
+名称: キン
+家乡：北京
+工作地：东京
+生年：1997年
+职业：咨询（正在转sales）
+年收:   600～700
+身高：160
+爱好：地雷系/lolita/宅舞/social/拍照/养生
+性格：80%E人但也享受一个人的时间；英国留子，日语学习中：）
+
+希望另一半：
+身高：170以上
+收入：＞我
+性格：大方，和我金钱观一致；情绪稳定，包容，主动，
+每天有时间能一起聊天，喜欢能量高的人
+```
+
 - （编号359)
 
 ![WechatIMG1123](https://github.com/user-attachments/assets/d223ddfd-98fb-4880-bae6-bce54f612412)
