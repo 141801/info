@@ -31,6 +31,9 @@
 
 - （编号379)
 
+![WechatIMG1247](https://github.com/user-attachments/assets/a7567c46-c8b5-4056-9cd4-576268506bd0)
+
+
 ```
 个人资料
 住址：东京都 23区内
