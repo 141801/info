@@ -1,8 +1,12 @@
-## 脱单信息
+<img width="1000" alt="スクリーンショット 2024-10-28 22 09 10" src="https://github.com/user-attachments/assets/be028f56-25ad-4ad1-998d-6068697423f2">## 脱单信息
 * [女生](https://github.com/141801/info/blob/main/women.md )
 * [男生](https://github.com/141801/info/blob/main/men.md)
 
 ## 群活动
+- 包饺子脱单 (202401027) 男13 女13
+![IMG_5936](https://github.com/user-attachments/assets/d4b06770-c353-4306-bad1-f2e0f3750bf5)
+![IMG_5937](https://github.com/user-attachments/assets/2b9cd4cf-1905-477d-8ce8-1e08502e05b9)
+
 
 - 包饺子脱单 (20240929) 男13 女12
  ![WechatIMG57](https://github.com/user-attachments/assets/7bba816d-c9cb-4359-975e-9ab62ca576de)
