@@ -1,4 +1,4 @@
-<img width="1000" alt="スクリーンショット 2024-10-28 22 09 10" src="https://github.com/user-attachments/assets/be028f56-25ad-4ad1-998d-6068697423f2">## 脱单信息
+## 脱单信息
 * [女生](https://github.com/141801/info/blob/main/women.md )
 * [男生](https://github.com/141801/info/blob/main/men.md)
 
