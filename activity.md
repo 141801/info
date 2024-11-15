@@ -3,6 +3,11 @@
 * [男生](https://github.com/141801/info/blob/main/men.md)
 
 ## 群活动
+- 桌游脱单 (202401119) 男11 女9
+![WechatIMG81](https://github.com/user-attachments/assets/4dcf0926-ed30-4e12-bd01-bc15676844b8)
+![WechatIMG82](https://github.com/user-attachments/assets/17d1ee9d-7ce6-43b8-b981-67a932895e92)
+
+
 - 包饺子脱单 (202401027) 男13 女13
 ![IMG_5936](https://github.com/user-attachments/assets/d4b06770-c353-4306-bad1-f2e0f3750bf5)
 ![IMG_5937](https://github.com/user-attachments/assets/2b9cd4cf-1905-477d-8ce8-1e08502e05b9)
