@@ -3,7 +3,14 @@
 * [男生](https://github.com/141801/info/blob/main/men.md)
 
 ## 群活动
-- 桌游脱单 (202401119) 男11 女9
+
+- 户外脱单 (202401117) 男21 女12
+
+![WechatIMG85](https://github.com/user-attachments/assets/02b54e43-a0b4-4b49-8878-04a2f9397fbf)
+![WechatIMG86](https://github.com/user-attachments/assets/40494d1f-38c7-4297-8507-1442a507fc8c)
+
+
+- 桌游脱单 (202401109) 男11 女9
 ![WechatIMG81](https://github.com/user-attachments/assets/4dcf0926-ed30-4e12-bd01-bc15676844b8)
 ![WechatIMG82](https://github.com/user-attachments/assets/17d1ee9d-7ce6-43b8-b981-67a932895e92)
 
