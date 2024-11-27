@@ -4,6 +4,13 @@
 
 ## 群活动
 
+
+- 包饺子脱单 (202401124) 男13 女13
+
+![WechatIMG89](https://github.com/user-attachments/assets/6173ecc9-0d54-4cd4-863e-64eb445a8e9b)
+![WechatIMG90](https://github.com/user-attachments/assets/cb15114d-5135-4fbf-bb3c-95bc5a9609da)
+
+
 - 户外脱单 (202401117) 男21 女12
 
 ![WechatIMG85](https://github.com/user-attachments/assets/02b54e43-a0b4-4b49-8878-04a2f9397fbf)
