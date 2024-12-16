@@ -10,7 +10,7 @@
 
 - （编号457)
 
-![WechatIMG2149](https://github.com/user-attachments/assets/14ec35b7-9ca9-452c-9d23-a6c99d64a4a3)
+![WechatIMG94](https://github.com/user-attachments/assets/e127a305-6d3d-4646-a748-14bbeb19942c)
 
 ```
 性别：男
