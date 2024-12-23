@@ -4,6 +4,9 @@
 
 ## 群活动
 
+- 包饺子脱单 (202401222) 男14 女13 (忘记合照)
+![WechatIMG102](https://github.com/user-attachments/assets/c8917aa5-9cd7-41c7-a9b8-834a74b0c164)
+
 
 - 包饺子脱单 (202401124) 男13 女13
 
