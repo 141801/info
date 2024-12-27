@@ -3890,6 +3890,8 @@ mbti：esfj
 
 - (编号91)
 
+![WechatIMG2207](https://github.com/user-attachments/assets/44916912-0096-4a3a-8e33-2cc846cd61ee)
+
 ![WechatIMG2112](https://github.com/user-attachments/assets/899e9a4b-deaa-49b1-8558-998b0ef40162)
 
 
