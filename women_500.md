@@ -1,8 +1,6 @@
 
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
-## 女生
-
 - （编号465)
 
 ![WechatIMG2238](https://github.com/user-attachments/assets/ede4a8e8-c926-4eac-aa49-56aa6f519726)
