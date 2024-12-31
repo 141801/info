@@ -8,9 +8,6 @@
 
 ## 男生
 
-- （编号466)
-
-![WechatIMG2235](https://github.com/user-attachments/assets/596e0e57-3e1c-46d8-a022-936c83756a8f)
 
 - （编号464)
   
