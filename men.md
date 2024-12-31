@@ -8,6 +8,26 @@
 
 ## 男生
 
+- （编号466)
+
+![WechatIMG2235](https://github.com/user-attachments/assets/596e0e57-3e1c-46d8-a022-936c83756a8f)
+
+- （编号464)
+  
+![WechatIMG2232](https://github.com/user-attachments/assets/10d319f0-ab9a-4fa6-aabb-4bcd6fc11e20)
+
+```
+籍贯：上海
+出生年：1986
+身高：174
+体重：72
+学历：硕士
+婚姻状况：未婚
+工作：半导体公司
+烟酒情况：抽烟但可以戒 只有应酬时喝酒
+家庭情况：独生子女 家庭和睦
+```
+
 - （编号461)
 ```
 93年，东京大学博士，东京品川区在住。
