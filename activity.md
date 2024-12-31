@@ -1,6 +1,4 @@
-## 脱单信息
-* [女生](https://github.com/141801/info/blob/main/women.md )
-* [男生](https://github.com/141801/info/blob/main/men.md)
+[返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
 ## 群活动
 
@@ -78,4 +76,4 @@
 ![WechatIMG47](https://github.com/141801/info/assets/42635299/997c1b07-62f3-4602-bf0a-75af0f52ec64)
 
 
-* [返回页首](#链接)
+[返回导航页](https://github.com/141801/info/blob/main/tinder.md)
