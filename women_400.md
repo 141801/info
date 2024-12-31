@@ -1,5 +1,5 @@
 
-* [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
+[返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
 - （编号398)
 ```
