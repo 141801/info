@@ -1,6 +1,27 @@
 [上一页](https://github.com/141801/info/blob/main/women_400.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号482)
+
+![WechatIMG2337](https://github.com/user-attachments/assets/d1c3724c-39f7-40db-ae38-81bed44e3192)
+
+
+```
+性别：女
+出生年份：1995.5.3
+籍贯：爸爸广东 妈妈辽宁 在沈阳长大
+身高体重：161/45
+学历：国内本科
+居住地：东京
+工作：国内6年英语老师 来日一年半 12月刚工作银座skii化粧品販売
+兴趣爱好（方便找共同点)：infj 但i e比率几乎一样
+我好像对什么都很感兴趣 睡觉 旅行 电影书籍 桌游麻将 逛街唱K
+有朋友一起户外也很好~想学滑雪和游泳 能教我最好
+择偶标准：
+硬性：注重个人卫生  圈子干净 不抽烟 成熟/有趣 
+非硬性：年上年下都🉑 175➕
+```
+ 
 - （编号480)
   
 ![WechatIMG2324](https://github.com/user-attachments/assets/7f189ccf-8a50-4bc4-845f-99d8604b468f)
