@@ -25,6 +25,6 @@
 * [男生 编号401~编号500](https://github.com/141801/info/blob/main/men_500.md)
 
 ## 过往活动
-* [2025年](https://github.com/141801/info/blob/main/activity2025.md)
-* [2024年](https://github.com/141801/info/blob/main/activity2024.md)
+* [2025年](https://github.com/141801/info/blob/main/activity_2025.md)
+* [2024年](https://github.com/141801/info/blob/main/activity_2024.md)
 
