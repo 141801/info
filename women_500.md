@@ -4,6 +4,8 @@
 
 - （编号486)
 
+![WechatIMG2377](https://github.com/user-attachments/assets/e2c358a6-6d26-43b8-a8f0-b48b4079b836)
+
 ```
 基本资料
  • 性别：女
