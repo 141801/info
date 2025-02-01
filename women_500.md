@@ -1,6 +1,33 @@
 [上一页](https://github.com/141801/info/blob/main/women_400.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号494)
+
+![WechatIMG2440](https://github.com/user-attachments/assets/09f91e13-3cb3-409a-902e-56058d0eb180)
+
+```
+性别：女
+出生年份：1988
+国内居住地：浙江嘉兴
+日本居住工作地：东京
+身高：160cm
+体重：53kg
+学历：本科
+职业：护士，医疗翻译
+
+我：
+性格比较温和，依赖型，
+喜欢旅游，游泳，宅家，睡觉
+性格偏E（外向型）
+
+希望你：
+情绪稳定，积极向上，
+收入600+，不抽烟不喝酒
+身高170cm+
+长相清秀干净
+```
+
+
 - （编号490)
 
 ![WechatIMG2411](https://github.com/user-attachments/assets/1ecf3207-be4a-481e-81f1-0426d9063711)
