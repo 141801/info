@@ -1,6 +1,31 @@
 [上一页](https://github.com/141801/info/blob/main/women_400.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号499)
+
+![WechatIMG2469](https://github.com/user-attachments/assets/67823fb4-e9c6-48d1-ac1e-ecc7520b92c2)
+
+```
+家乡：天津
+居住地：埼玉县
+性别：女
+出生：1992年
+身高：179.9
+mbti：INFJ
+星座：水瓶座
+学历：日本高中+短大+本科
+工作：跨境医疗·医疗翻译
+年收：400+
+签证：永驻申请中
+未来规划：日本定居
+家庭：父母都在国内，家庭合睦
+性格：善良独立慢热，参考水瓶座
+爱好：旅游，撸小动物（不仅限猫咪）
+家有猫咪一只，拒绝任何理由的弃养。
+希望对方：无不良嗜好，情绪稳定，乐观，做事有计划性
+身高比我高即可，年收500+
+```
+
 - （编号494)
 
 ![WechatIMG2440](https://github.com/user-attachments/assets/09f91e13-3cb3-409a-902e-56058d0eb180)
