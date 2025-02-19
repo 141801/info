@@ -553,7 +553,7 @@ MBTI：INFP
 
 - (编号321）
 
-![WechatIMG703](https://github.com/user-attachments/assets/91fde83e-17df-4dd9-b292-fa4a0eda7a61)
+![WechatIMG2561](https://github.com/user-attachments/assets/b5793968-192c-4b91-ab8e-7d65e13a1e6c)
 
 ```
 年龄：95年  
