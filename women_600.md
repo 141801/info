@@ -1,6 +1,22 @@
 [上一页](https://github.com/141801/info/blob/main/women_500.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+
+- （编号546）
+
+```
+.性别：女
+.出生年份：1996
+.籍贯：济南
+.身高体重：170/60
+.学历：研究生
+.居住地：琦玉
+.工作：医院
+.兴趣爱好（方便找共同点)：网球美剧猫
+.择偶标准1989到1996年出生，175以上80公斤以下，
+ 不抽烟喝酒，喜欢户外，年收500以上
+```
+
 - （编号545）
 
 ![WechatIMG2759](https://github.com/user-attachments/assets/9d80e2c9-64ba-48cc-b765-27cf8c144fbf)
