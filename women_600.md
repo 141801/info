@@ -1,6 +1,28 @@
 [上一页](https://github.com/141801/info/blob/main/women_500.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号558）
+
+![WechatIMG2816](https://github.com/user-attachments/assets/61449238-acc2-4ccb-a8ca-e6b090fb666d)
+
+
+```
+个人资料
+女
+1988.11 天蝎座
+祖籍福建 
+小时候来的日本 现日籍 
+现住东京足立区
+三姐弟的長女
+160cm 55kg
+血型O
+大学毕业 一家小公司的社员
+年收500＋
+兴趣爱好：运动(跑步，瑜伽，网球在学习中）旅行，美食，音乐等等
+
+希望找到一个成熟稳重以结婚为目的的另一半
+```
+
 - （编号553）
 
 ![WechatIMG2795](https://github.com/user-attachments/assets/b6b8faf5-1cb4-41d8-8f0d-d9282097198a)
