@@ -1,6 +1,20 @@
 [上一页](https://github.com/141801/info/blob/main/women_500.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号562）
+
+```
+.性别：女
+.出生年份：1977
+.籍贯：吉林
+.身高体重：155/49
+.学历：大学本科
+.居住地：埼玉
+.工作：事務
+.兴趣爱好（方便找共同点)：爬山、カラオケ、羽毛球
+.择偶标准：工作稳定、情绪稳定、168cm以上、本科以上学历
+```
+
 - （编号558）
 
 ![WechatIMG2816](https://github.com/user-attachments/assets/61449238-acc2-4ccb-a8ca-e6b090fb666d)
