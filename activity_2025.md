@@ -1,5 +1,8 @@
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 ## 群活动
+- 桌游脱单 (20250330) 男17 女17
+![WechatIMG128](https://github.com/user-attachments/assets/da2ccf52-53b4-49f8-852e-3588891e5484)
+
 
 - 包饺子脱单 (20250209) 男14 女14
    没有照片（～～）
