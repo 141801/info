@@ -600,21 +600,6 @@ ENTJ
 对方要求：真诚有责任心
 ```
 
-- (编号311）
-
-![WechatIMG509](https://github.com/user-attachments/assets/259c83fc-4d63-4c97-b45a-7f759d98a7bd)
-
-```
-93年 153cm /48kg 巨蟹座 ESFP
-籍贯：山西
-现居：东京（有长居打算）
-学历：本科
-爱好：爬山，跳舞，游泳，旅游（只要出门了就很开心）
-性格：开朗随和
-希望对方：90后，长相端正，不邋遢170cm➕，不抽烟。
-温柔善良但有原则主见，说话直的冲的ダメ。
-```
-
 - (编号302）
 
 ![WechatIMG2542](https://github.com/user-attachments/assets/baf7250a-6d39-4531-918a-8c35f5abbc7a)
