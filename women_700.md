@@ -1,6 +1,28 @@
 [上一页](https://github.com/141801/info/blob/main/women_600.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+
+- （编号609）
+
+![WechatIMG3162](https://github.com/user-attachments/assets/3f69b36f-4e52-41d5-ab64-9b03f256b6b9)
+
+
+```
+94年狮子座，
+身高167cm，略有点圆润。
+辽宁大连人，现在定居东京
+有稳定的工作。
+生活状态：
+平时最喜欢的就是旅行，喜欢去那些人少安静的小岛看海
+家里有一只7岁的猫咪，打算一直陪它养老（无弃养打算）
+
+希望对方：
+有稳定的工作，身高比我高一些，体型不要太瘦（不然会有种不该有的保护欲）
+不抽烟最好，偶尔喝点小酒可以（最好能带我一起喝）但不能酗酒～
+希望你也喜欢小动物，能接受猫狗。
+最重要的一点：拒绝懒人！
+```
+
 - （编号608）
 
 ![WechatIMG3146](https://github.com/user-attachments/assets/f772d683-b933-46fd-940b-24e88e2355a8)
