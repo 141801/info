@@ -204,7 +204,8 @@
 
 - (编号162）
 
-![WechatIMG5965](https://github.com/141801/info/assets/42635299/0c8e0b7e-990e-4f39-941a-b3d9b6bbd637)
+![WechatIMG3205](https://github.com/user-attachments/assets/02d4aa3e-4338-45df-9224-9196550b5eec)
+
 
 ```
 出生年份：1993
