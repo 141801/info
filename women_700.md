@@ -4,7 +4,7 @@
 
 - （编号615）
   
-![WechatIMG3226](https://github.com/user-attachments/assets/ad6f5b3f-d5fd-46a2-b6a2-a092c9586ee9)
+![WechatIMG3229](https://github.com/user-attachments/assets/944f8cd8-7ea3-423c-8315-9d9070d612f8)
 
 ```
 自我介绍
