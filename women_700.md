@@ -1,6 +1,22 @@
 [上一页](https://github.com/141801/info/blob/main/women_600.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号627）
+
+![WechatIMG3299](https://github.com/user-attachments/assets/d6496155-59df-4b00-b237-d2ec28f147e1)
+
+```
+.性别：女
+.出生年份：1988，未婚
+.籍贯：上海
+.身高体重：162/55
+.学历：985本+C9 MBA
+.居住地：东京（2025年从上海relocate至东京）
+.工作：金融（年收1000w+）
+.兴趣爱好：健身、滑雪（初学）、旅行、烹饪
+.择偶标准：年龄±5岁，未育，有责任心、热爱生活、背景相似
+```
+
 - （编号621）
 
 ```
