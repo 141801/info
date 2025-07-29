@@ -1,6 +1,33 @@
 [上一页](https://github.com/141801/info/blob/main/women_600.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号638）
+
+![WechatIMG3356](https://github.com/user-attachments/assets/9a4d8dfd-e52a-4ae2-a3f3-c47d8e939d03)
+
+```
+出生年：1989
+年龄：35
+国籍：中国
+户籍地：河南
+现住：东京
+身高：162
+体重：56
+最终学历：硕士
+职业：国内做过几年大专老师，目前东京是事务正社员
+日语：N2
+在日期间：2019年来日
+签证：技术人文
+婚歴：未婚单身
+同居：无
+爱好：音乐，户外，
+年收: 300万+
+ 
+专业是学艺术的，做过老师教过音乐，目前主要是事务类的工作，很偶尔兼职教钢琴。
+收入一般，但是爱自由，热爱生活，周末会去看看展，爬山。
+```
+
+
 - （编号630）
   
 ![WechatIMG3309](https://github.com/user-attachments/assets/2c428405-afbc-45bc-bab4-62bee6f1280a)
