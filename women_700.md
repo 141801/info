@@ -1,6 +1,31 @@
 [上一页](https://github.com/141801/info/blob/main/women_600.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号639）
+
+![WechatIMG3361](https://github.com/user-attachments/assets/71d4aa8a-b04c-4047-93c3-17cd7dc53658)
+
+```
+ 个人资料
+家乡：河北
+工作地：东京
+坐标:   琦玉县川口市
+来日：8年
+生年：1988
+职业：IT
+身高：160
+体重：46kg
+MBTI:  INFJ 绿老头
+星座:  对待感情专一的金牛座
+爱好：旅游，读书，咖啡厅，吸猫，唱歌
+自我介绍：可宅可户外，喜欢大自然，人文景观与citywalk，
+也可以宅家吸猫，愿意尝试新鲜事物。偏慢热型，待人真诚不喜欢弯弯绕绕
+
+另一半希望：
+有眼缘，对猫不过敏，性格温和情绪稳定、爱干净无不良嗜好、
+能沟通有商有量，拒绝冷暴力、不沉迷游戏、不宅男
+```
+
 - （编号638）
 
 ![WechatIMG3356](https://github.com/user-attachments/assets/9a4d8dfd-e52a-4ae2-a3f3-c47d8e939d03)
