@@ -9,6 +9,11 @@
 牵线请谨慎 发现海王一律踢群
 ```
 
+## 过往活动
+* [2025年](https://github.com/141801/info/blob/main/activity_2025.md)
+* [2024年](https://github.com/141801/info/blob/main/activity_2024.md)
+
+
 ## 脱单信息
 
 ### 女生
@@ -28,7 +33,4 @@
 * [男生 编号401~编号500](https://github.com/141801/info/blob/main/men_500.md)
 * [男生 编号501~编号600](https://github.com/141801/info/blob/main/men_600.md)
 * [男生 编号601~编号700](https://github.com/141801/info/blob/main/men_700.md)
-## 过往活动
-* [2025年](https://github.com/141801/info/blob/main/activity_2025.md)
-* [2024年](https://github.com/141801/info/blob/main/activity_2024.md)
 
