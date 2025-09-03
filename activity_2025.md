@@ -1,5 +1,7 @@
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 ## 群活动
+
+- 饺子脱单 (20250824) 男15 女15
 - 桌游脱单 (20250803) 男15 女15
 ![WechatIMG190](https://github.com/user-attachments/assets/268c3627-93d3-43d8-aa73-4f84508e4123)
 
