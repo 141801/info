@@ -286,8 +286,7 @@ IT工作，圈子干净，平时不忙，大部分在宅。
 
 - （编号609）
 
-![WechatIMG3162](https://github.com/user-attachments/assets/3f69b36f-4e52-41d5-ab64-9b03f256b6b9)
-
+![WechatIMG3401](https://github.com/user-attachments/assets/499b1ff5-a3ca-4a42-8aa4-4ef9a9c4d4c5)
 
 ```
 94年狮子座，
