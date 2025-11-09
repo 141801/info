@@ -1,6 +1,30 @@
 [上一页](https://github.com/141801/info/blob/main/women_600.md)
 [返回导航页](https://github.com/141801/info/blob/main/tinder.md)
 
+- （编号650）
+
+![WechatIMG221](https://github.com/user-attachments/assets/cfd3eeae-7dbb-4cf1-b185-42573e39fda8)
+
+
+```
+1.昵称 露露
+2.性别：女
+3.出生年份：1989/10/22
+4.籍贯：山东潍坊
+5.身高体重：165/59
+6.学历：大专
+7.居住地：东京板桥区
+8.工作：川口
+9.兴趣爱好（方便找共同点)：旅游徒步，探店，跳舞，动漫
+10.择偶标准
+男生：175/别太胖就好
+爱好有相同的最好了，
+不抽烟不酗酒，没有不良爱好
+努力上进，经济稳定
+三观正，尊重女生和异性保持距离
+情绪稳定，有担当
+```
+
 - （编号649）
 
 ![WechatIMG219](https://github.com/user-attachments/assets/6a516e22-dd8c-49b0-8b9a-52dffbbf36f3)
