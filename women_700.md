@@ -214,6 +214,9 @@ MBTI:  INFJ 绿老头
 
 - （编号616）
 
+![WechatIMG3434](https://github.com/user-attachments/assets/ec91d2fc-5dfb-4733-b681-befa26e4db3a)
+
+
 ```
 洛阳人 现居东京
 1992    154/56（努力减肥中）
