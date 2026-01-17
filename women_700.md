@@ -26,6 +26,8 @@
 
 - （编号654）
 
+![WechatIMG3464](https://github.com/user-attachments/assets/e90326bc-52f9-489f-bca4-f8f1b85ded5d)
+
 ```
 自我介绍
 1997年年末出生
